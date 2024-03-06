@@ -1,6 +1,6 @@
 u- 👋 Hi, I’m @Hanitriniaina7, I'm member of the student into Sayna
 - 👀 I’m interested in internet and I'm still slearning about many things about it
-- 🌱 I’m currently learning many things about it and especially what should we do to learn andto know more about it
+- 🌱 I’m currently learning many things about it and especially what should we do to learn and to know more about it
 - 💞️ I’m looking to collaborate on different project in the world
 - 📫 How to reach me e-mail: hanitriniainafrancine6@gmail.com
 
